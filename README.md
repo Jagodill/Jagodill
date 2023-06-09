@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jagodill
+- 👀 I’m interested in idk
+- 🌱 I’m currently learning probably nothing
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me jagoda.czabanska@gmail.com
